@@ -1,0 +1,1 @@
+Flder na pliki zdjęciowe
